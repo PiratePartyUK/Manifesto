@@ -1,4 +1,3 @@
-﻿Manifesto
 
 Foreword by the Leader of Pirate Party UK
 =========================================
@@ -44,7 +43,6 @@ The policies that you will find in this manifesto are based upon 7 simple princi
 5. To be free to participate in society everyone must have access to justice, education and such services and infrastructure required for life within it.
 6. To ensure the security of our society it is the responsibility of the government to provide for its defence, the mechanisms of justice and such services and infrastructure required to meet its needs.
 7. We will act on the basis of evidence, with the consent of society through democracy, in the interests of all.
-Media information	72
 
 
 Digital Economy and Digital Rights
