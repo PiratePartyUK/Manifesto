@@ -388,8 +388,9 @@ We will conduct a review of the 'Prevention of Terrorism Act 2005'.  When it was
 Whilst some of these objections have been addressed, the issues they present remain.  A thorough review of terrorism legislation is again needed to ensure that we have the right powers to deal with the threat, rather than simply broader powers that leave us all a little bit less free.
 
 
+
 Restoring Trust In Government
------------------------------
+=============================
 
 Our democracy is in real danger. All too few people take part and vote. It's time to reverse the trend of just a few people calling the shots. This has to start with trusting young people and bringing in voting from 16. All the main parties promised us long overdue reform of the House of Lords, but seem unable to act due to Westminster bickering. Let's all be involved in working out how we want to be governed, based on equality and fair representation. When all else fails constituents should be able to force a by-election if they have lost confidence in their MP.
 
