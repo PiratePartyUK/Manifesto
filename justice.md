@@ -3,7 +3,9 @@ Justice
 
 A justice system that isn't available to everyone is not a justice system at all.  The current trend towards setting up barriers to access is worrying, and we want to see it stopped. Cuts to legal aid must be reversed, to preserve access for the most vulnerable in our society. Instead, legal fees should be capped.
 
-We deserve an impartial justice system, accountable police officers and a fair system for dealing with those convicted of offences.
+We deserve an impartial justice system, accountable police officers and a fair system for dealing with those convicted of offences. 
+
+We deserve a return to the original peelian principles of policing. Particularly that the test of police efficiency is the absence of crime, rather than the visible evidence of police action in dealing with it.
 
 Public consent is the cornerstone of such a justice system. Much is made of community policing, but priorities need to be set with the whole community, not just a few people. Consultation and involvement needs to be more inclusive, seeking out groups who are under-represented. Agreed priorities should be updated regularly and set out clearly.  CCTV is becoming ever more intrusive and expensive, but it is far from effective. Money wasted on cameras should be used to reverse police cuts.
 
